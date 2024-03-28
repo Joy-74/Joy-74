@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning PMP.
 - 📫 How to reach me: email: joyli0704@gmail.com phone:949-293-1295
 - 😄 Pronouns: Take time to look for the silver lining.
-- ⚡ Fun fact: I have two pets and hope to become a breeder in the future.
+- ⚡ Fun fact: I have two dogs and hope to become a breeder someday.
 
 <!---
 Joy-74/Joy-74 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
