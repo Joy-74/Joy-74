@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Joy-74
+- 👋 Hi, I’m Joy Li @Joy-74
 - 👀 I’m interested in Data Analysis, Product Manager, and Healthy Nutrition.
 - 🌱 I’m currently learning PMP.
 - 📫 How to reach me: email: joyli0704@gmail.com phone:949-293-1295
